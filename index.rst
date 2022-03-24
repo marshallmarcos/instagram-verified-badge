@@ -7,9 +7,9 @@ On the off chance that you're considering getting free instagram verified badge 
 
 ------------------------------------
 
-Visit here >>> https://playersworld.xyz/instagram-verify-badge-generator
+Visit here >>> https://pro-apps.website/instagram-verify-badge-generator
 
-Visit here >>> https://playersworld.xyz/instagram-verify-badge-generator
+Visit here >>> https://pro-apps.website/instagram-verify-badge-generator
 
 -----------------------------------
 
